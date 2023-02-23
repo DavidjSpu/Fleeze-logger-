@@ -10,3 +10,5 @@ Step 9 send that image to people when they click it you wanna get acces to there
 Step 10 where will the acces be it will be in this folder it will show there roblox cookie paswards email and discord token
 Step 11 have fun hacking people
 DM Liverz#8888 if you are having any prouble
+
+![Capture](https://user-images.githubusercontent.com/101367753/220992399-ddf1e472-3747-468f-99f4-f0f610f249c8.PNG)
